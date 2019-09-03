@@ -52,7 +52,13 @@ https://m.openmindclub.com/stu/AA003/discussion/2ff0d2ed-a041-4f36-9503-18260ca0
 ![nSTsEV.png](https://s2.ax1x.com/2019/09/01/nSTsEV.png)
 ![nSTyNT.png](https://s2.ax1x.com/2019/09/01/nSTyNT.png)
 
-**报名方式**：
+
+
+Sample 周报：[开启奇特的一生 - 皓月长天 | Hao's Blog](https://kiaorahao.github.io/2019/09/03/W36-TM-Review/)
+
+
+
+报名方式**：
 
 (同覃睿)请在评论中进行自我介绍并表明意向执方 说明是否愿意担任队长【愿意担任队长者优先】（需要正反小队两名队长，队长对本队按时完成文章负责，主要职责是组织线上讨论以及对本小队产出进度的把控） 加我微信 lovzzzb 限额四人，抓紧上车～
 
